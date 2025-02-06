@@ -9,3 +9,5 @@ c+h are allowed if stated. // whisper to int.
 DNI if u feel uncomfy with any fandoms im in. 
 
 border credit: https://www.tumblr.com/primrose-syndicate
+
+#yaoi
