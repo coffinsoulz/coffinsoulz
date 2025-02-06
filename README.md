@@ -2,7 +2,7 @@
    
 
 
-PLEASE FUCKING read Patreon if u plan to int (or just get to know me.) Also please don't cover. (0_^)
+PLEASE read Patreon if u plan to int (or just get to know me.) Also please don't cover. (0_^)
 
 c+h are allowed if stated. // whisper to int. // usually offtab
 
