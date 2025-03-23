@@ -8,6 +8,10 @@ c+h are allowed if stated. // whisper to int. // usually offtab
 
 DNI if u feel uncomfy with any fandoms im in. 
 
+Scythe (Phighting) & Greifer (Block Tales) Yume, sharing.
+
+Ghostwalker is my comf character.
+
 border credit: https://www.tumblr.com/primrose-syndicate
 
 #yaoi
