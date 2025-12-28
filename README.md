@@ -5,7 +5,7 @@ PLEASE read Patreon if u plan to int (or just get to know me, socials r in there
 
 I like giving flowers to everyone. 
 
-c+h are allowed if stated. // whisper to int. // usually offtab
+c+h are allowed if stated. // whisper to int. // usually offtab or afk.
 
 DNI if u feel uncomfy with any fandoms im in. 
 
