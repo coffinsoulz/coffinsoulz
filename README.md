@@ -1,5 +1,5 @@
 
-PLEASE read Patreon if u plan to int (or just get to know me, socials r in there.) Also please don't cover. (0_^)
+PLEASE read Patreon if u plan to int (or just get to know me, socials r in there.) Also please don't cover. (unless we're c+h) (0_^)
 
 I like giving flowers to everyone. 
 
