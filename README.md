@@ -1,4 +1,4 @@
-![Mafioso.](https://media.discordapp.net/attachments/1182313553395470396/1454932147243847771/WataameCamera_29122025_041706.png?ex=6952e2a7&is=69519127&hm=f6a95e7b078a321e214907027ad16054b8a4cec2a65e6a617fbe863cd838cbdc&=&format=webp&quality=lossless&width=1504&height=902)
+![Mafioso.](https://cdn.discordapp.com/attachments/1178288372205228092/1471124908141576316/Untitled363_20251229041918.png?ex=698dcb56&is=698c79d6&hm=b50e361a197c0eeaadfd9be1c885840074d544da20c6a3433e4acef2b98388af)
 
 
 PLEASE read Patreon if u plan to int (or just get to know me, socials r in there.) Also please don't cover. (unless we're c+h) (0_^)
