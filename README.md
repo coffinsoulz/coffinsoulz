@@ -1,4 +1,4 @@
-![Mafioso.](https://cdn.discordapp.com/attachments/1178288372205228092/1471124908141576316/Untitled363_20251229041918.png?ex=698dcb56&is=698c79d6&hm=b50e361a197c0eeaadfd9be1c885840074d544da20c6a3433e4acef2b98388af)
+![Mafioso.](https://file.garden/ajQmnKjXvCs7r10c/mafi.png)
 
 
 PLEASE read Patreon if u plan to int (or just get to know me, socials r in there.) Also please don't cover. (unless we're c+h) (0_^)
