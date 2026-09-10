@@ -1,5 +1,6 @@
 ![Mafioso.](https://file.garden/ajQmnKjXvCs7r10c/mafi.png)
 
+(I'll be reworking my carrd and strawpage in the future to have more accurate info abt me.!) 
 
 PLEASE read Patreon if u plan to int (or just get to know me, socials r in there.) Also please don't cover. (unless we're c+h) (0_^)
 
