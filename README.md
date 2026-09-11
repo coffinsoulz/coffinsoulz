@@ -2,7 +2,7 @@
 
 (I'll be reworking my carrd in the future to have more accurate info abt me.!) 
 
-PLEASE read Rentry if u plan to int (or just get to know me)
+PLEASE read Rentry if u plan to int (or just get to know me), rec to use pc/laptop to view cuz the img is fucked up on phone
 
 I like giving flowers to everyone as Winglet pony.
 
