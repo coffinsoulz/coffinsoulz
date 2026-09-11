@@ -8,7 +8,7 @@ I like giving flowers to everyone as Winglet pony.
 
 c+h are allowed if stated. // whisper to int. // usually offtab or afk.
 
-Azure non-sharing (Forsaken), Scythe (Phighting) yume. I also really like Towa (Slow damage) & Masky/Tim (Marble Hornets).
+Azure non-sharing (Forsaken), Sergeant (TDC), Scythe (Phighting) yume. I also really like Towa (Slow damage) & Masky/Tim (Marble Hornets).
 
 Ghostwalker is my comf character. , Mafioso (Forsaken) is my familial f/o. 
 
