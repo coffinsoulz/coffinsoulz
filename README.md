@@ -13,3 +13,5 @@ Azure non-sharing (Forsaken), Sergeant (TDC), Scythe (Phighting) yume. I also re
 Ghostwalker is my comf character. , Mafioso (Forsaken) is my familial f/o. 
 
 #yaoi
+
+![TIm.](https://file.garden/ajQmnKjXvCs7r10c/tim.png)
