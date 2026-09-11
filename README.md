@@ -1,16 +1,14 @@
 ![Mafioso.](https://file.garden/ajQmnKjXvCs7r10c/mafi.png)
 
-(I'll be reworking my carrd and strawpage in the future to have more accurate info abt me.!) 
+(I'll be reworking my carrd in the future to have more accurate info abt me.!) 
 
-PLEASE read Patreon if u plan to int (or just get to know me, socials r in there.) Also please don't cover. (unless we're c+h) (0_^)
+PLEASE read Rentry if u plan to int (or just get to know me)
 
-I like giving flowers to everyone. 
+I like giving flowers to everyone as Winglet pony.
 
 c+h are allowed if stated. // whisper to int. // usually offtab or afk.
 
-DNI if u feel uncomfy with any fandoms im in. 
-
-Azure non-sharing (Forsaken), Scythe (Phighting) & Greifer (Block Tales) Yume. I also really like Towa (Slow damage) & Masky/Tim (Marble Hornets).
+Azure non-sharing (Forsaken), Scythe (Phighting) yume. I also really like Towa (Slow damage) & Masky/Tim (Marble Hornets).
 
 Ghostwalker is my comf character. , Mafioso (Forsaken) is my familial f/o. 
 
