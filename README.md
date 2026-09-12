@@ -6,7 +6,7 @@ PLEASE read Rentry if u plan to int (or just get to know me), rec to use pc/lapt
 
 I like giving flowers to everyone as Winglet pony.
 
-c+h are allowed if stated. // whisper to int. // usually offtab or afk.
+c+h is encouraged // whisper to int. // usually offtab or afk.
 
 Azure non-sharing (Forsaken), Sergeant (TDC), Scythe (Phighting) yume. I also really like Towa (Slow damage) & Masky/Tim (Marble Hornets).
 
